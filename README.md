@@ -1,4 +1,4 @@
-      ENCHANTÉ! 👋 
+      ENCHANTÉ ! 👋 
 
 - 🧑‍ Moi c'est Clément et je suis actuellement étudiant
 
